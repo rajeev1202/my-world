@@ -1,3 +1,3 @@
 # my-world
 my deposit box
-successful peoples are not different they looj at things differently
+i'm here to sharpen my skills,gain knowledge about pratical coding.
